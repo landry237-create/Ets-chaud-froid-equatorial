@@ -1,1 +1,0 @@
-# Ets-chaud-froid-equatorial
